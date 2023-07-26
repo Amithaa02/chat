@@ -1,1 +1,9 @@
-# chat
+![Screenshot (177)](https://github.com/Amithaa02/chat/assets/127115835/fdec040c-f0f5-4e51-8ebc-18f7943401b7)
+![Uploading Screenshot (191).png…]()
+![Uploading Screenshot (189).png…]()
+![Uploading Screenshot (188).png…]()
+![Uploading Screenshot (187).png…]()
+![Uploading Screenshot (186).png…]()
+![Uploading Screenshot (185).png…]()
+![Uploading Screenshot (184).png…]()
+![Uploading Screenshot (183).png…]()
